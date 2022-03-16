@@ -1,8 +1,8 @@
 ### Hi all 👋
 
-🔭 I’m currently studying in BSU.
+🙄 I’m currently studying in BSU 
 
-🌱 I’m currently learning Android Development and UX Design.
+🌱 I’m currently learning Android Development and UX Design
 
 💬 Ask me about tennis or Eurovision lol
 
