@@ -1,11 +1,11 @@
-### Hi all 👋
+### hi all 👋
 
 🙂 I’m a Junior Android Developer at Capgemini now
 
-🌱 Love Android Development and UX Design
+🌱 enjoy Android Development and UX Design
 
-💬 Ask me about tennis or Eurovision lol
+💬 ask me about tennis or Eurovision lol
 
-📫 How to reach me: [email](mailto:aliaksei.matsveyenak@gmail.com) 📧
+📫 how to reach me: [linkedin](https://www.linkedin.com/in/matsveyenak/), [email](mailto:aliaksei.matsveyenak@gmail.com) 
 
-😄 Lover of sports, history and music industry
+😄 lover of sports, history and music industry
