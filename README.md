@@ -1,8 +1,8 @@
 ### Hi all 👋
 
-🙄 I’m currently studying in BSU 
+🙄 I’m a Junior Android Developer at Capgemini now
 
-🌱 Learning Android Development and UX Design
+🌱 Love Android Development and UX Design
 
 💬 Ask me about tennis or Eurovision lol
 
