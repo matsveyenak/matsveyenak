@@ -1,6 +1,6 @@
 ### hi all 👋
 
-🙂 I’m a Junior Android Developer at Capgemini now
+🙂 I’m a Middle Android Developer at Capgemini now
 
 🌱 enjoy Android Development and UX Design
 
