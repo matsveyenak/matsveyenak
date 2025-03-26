@@ -2,10 +2,8 @@
 
 🙂 I’m a Middle Android Developer at Capgemini now
 
-🌱 enjoy Android Development and UX Design
+🇵🇱 based in Wroclaw, Poland
 
-💬 ask me about tennis or Eurovision lol
+💬 ask me about tennis or Eurovision, gym lover too
 
 📫 how to reach me: [linkedin](https://www.linkedin.com/in/matsveyenak/), [email](mailto:aliaksei.matsveyenak@gmail.com) 
-
-😄 lover of sports, history and music industry
