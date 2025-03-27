@@ -1,6 +1,6 @@
 ### hi all 👋
 
-🙂 I’m a Middle Android Developer at Capgemini now
+🙂 I’m a Android Software Engineer at Capgemini now
 
 🇵🇱 based in Wroclaw, Poland
 
